@@ -27,4 +27,4 @@ I like this series when i was a kid and even still right now i still watch some 
 
 
 
-For more detailed info about the series you can read more here [Dragon Ball OFFICIAL WEBSITE]([https://www.example.com](https://en.dragon-ball-official.com/about/))
+For more detailed info about the series you can read more here [Dragon Ball OFFICIAL WEBSITE](https://en.dragon-ball-official.com/about/)
